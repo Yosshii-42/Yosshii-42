@@ -15,7 +15,13 @@
 ![get_next_linee](https://github.com/Yosshii-42/Yosshii-42/assets/161409687/846eee34-5084-431f-b59b-c5e5dbdbe894)
 <br>
 [![yotsurud's 42 get_next_line Score](https://badge42.coday.fr/api/v2/clvkvmri23613001p4f232g5kz/project/3655655)](https://github.com/Coday-meric/badge42)
+<br>
+![image](https://github.com/Yosshii-42/Yosshii-42/assets/161409687/9c1bdb2f-5291-405e-bf21-de00d1530f49)
+<br>
 
+<br>
+![image](https://github.com/Yosshii-42/Yosshii-42/assets/161409687/b3821fa8-3931-4ae2-932d-169061fb7345)
+<br>
 
-
-
+<br>
+![image](https://github.com/Yosshii-42/Yosshii-42/assets/161409687/4fa86d12-1b3f-43ba-979b-64d655c3ed82)
