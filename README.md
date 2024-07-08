@@ -19,4 +19,5 @@
 ![b2b](https://github.com/Yosshii-42/Yosshii-42/assets/161409687/9c1bdb2f-5291-405e-bf21-de00d1530f49)
 <br>
 ![fractol](https://github.com/Yosshii-42/Yosshii-42/assets/161409687/8e925ab4-be79-4841-aa72-da39d6b3d7c8)
-
+<br>
+![push_swap](https://github.com/Yosshii-42/Yosshii-42/assets/161409687/e04ea800-67b7-4c33-85ce-b677ea8489a4)
